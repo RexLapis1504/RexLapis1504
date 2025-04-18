@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @RexLapis1504
-- 👀 I’m interested in gaming  
-- 🌱 I’m currently learning App Development
-- 💞️ I’m looking to collaborate on Project Ideas  
-- 📫 How to reach me: mail at ebhanan1507@gmail.com
-- 😄 Pronouns: helikopter!!! (never use that) | what is in a pronoun- Wise Shakesphere 2024 
+- 👀 I’m interested in Sleeping all day long
+- 🌱 I’m currently learning How to breathe air
+- 💞️ I’m looking to sleeping till Satyug comes
+- 📫 How to reach me: enter my dream like inception 
+- 😄 Pronouns: helikopter!!! (never use that) | what is in a pronoun- Wise Shakesphere 2025
 - ⚡ Fun fact: Sleeping is the best medicine  
 
 <!---
